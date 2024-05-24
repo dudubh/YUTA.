@@ -8,4 +8,4 @@
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 
-![](https://media1.tenor.com/m/y48c7Rdnc_4AAAAd/yuta-yuta-okkustu-l.gif)
+![](https://media1.tenor.com/m/uTqtISE4U58AAAAd/yutaokkotsu.gif)
